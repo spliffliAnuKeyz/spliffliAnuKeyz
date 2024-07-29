@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 🍍...---...🍍
 - 📫 How to reach me 🍍...---...🍍
 - 😄 Pronouns: 🍍...-+-...🍍
-- ⚡ Fun fact: 🍍...-+-...🍍 = 118420Q
+- ⚡ Fun fact: 🍍...-+-...🍍 = 118420Q = https://www.youtube.com/watch?v=ZfaoMmoqRWc (Short Film "Reborn" | DUST (I'm hypothetically talking directly with fictional characters through DMT))
 - 🍍 Youtube Channel (Vibez & WSpatial Awareness Playlists and Videos to Come): https://www.youtube.com/channel/UCBEXqWaBTZ0TTow4htFl9hQ
 
 <!---
