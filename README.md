@@ -5,6 +5,7 @@
 - 📫 How to reach me 🍍...---...🍍
 - 😄 Pronouns: 🍍...-+-...🍍
 - ⚡ Fun fact: 🍍...-+-...🍍 = 118420Q
+- 🍍 Youtube Channel (Vibez & WSpatial Awareness Playlists and Videos to Come): https://www.youtube.com/channel/UCBEXqWaBTZ0TTow4htFl9hQ
 
 <!---
 spliffliAnuKeyz/spliffliAnuKeyz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
